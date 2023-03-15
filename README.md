@@ -51,3 +51,4 @@ If your project head is out of town and you are unable to crack a design problem
 The benefits of ChatGPT in graphic design are pretty high. From increasing the designer’s efficiency and offering a better customer experience to automating specific tasks, using ChatGPT in your UX/UX design process can help you improve your skills and save time. 
 
 As the top social media agency in Delhi, the tool has helped us refine our design ideas. Are you ready to flex your creativity with ChatGPT? 
+https://www.diinfotech.com/blog/how-chatgpt-can-help-graphic-designers-graphic-designing-agencies-in-delhi/
